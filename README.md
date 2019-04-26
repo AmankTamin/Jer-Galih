@@ -1,0 +1,2 @@
+# Jer-Galih
+sakulah github
